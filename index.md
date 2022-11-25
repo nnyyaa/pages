@@ -8,4 +8,4 @@
   
 [加入我们!](https//wspbh.github.io/img/qun/qun.jpg)
   
-[关于群](https://wspbh.github.io/img/aboutqun.jpg)
+[关于群](https://wspbh.github.io/img/qun/aboutqun.jpg)
