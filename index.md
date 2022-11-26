@@ -13,9 +13,9 @@
 [曦曦鸽鸽的头像!](https://tenapi.cn/qqimg/?qq=2038154919)  
 
 #### 群内~~恶人~~雌堕人  
-![群主SH-~~恶人~~雌堕人之首](https://tenapi.cn/qqimg/?qq=1769481479)  
-![曦曦-雌堕成雌小鬼](https://tenapi.cn/qqimg/?qq=2038154919)  
-![942-创下最快雌堕记录](https://tenapi.cn/qqimg/?qq=270067474)  
+![群主SH-~~恶人~~雌堕人之首](https://tenapi.cn/qqimg/?qq=1769481479)  群主SH-~~恶人~~雌堕人之首  
+![曦曦-雌堕成雌小鬼](https://tenapi.cn/qqimg/?qq=2038154919)  曦曦-雌堕成雌小鬼  
+![942-创下最快雌堕记录](https://tenapi.cn/qqimg/?qq=270067474)  942-创下最快雌堕记录  
 
 [加入我们!](img/qun/qun.jpg)  
 [关于群(我们是一个怎样的群？)](img/qun/aboutqun.jpg)
