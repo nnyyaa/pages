@@ -32,7 +32,11 @@
 
 ![潇潇暮雨-一个正常人?](https://tenapi.cn/qqimg/?qq=2925747911)  
 潇潇暮雨-一个正常人?(雾)  
-[高清版头像](https://tenapi.cn/qqimg/?qq=2925747911)
-
+[高清版头像](https://tenapi.cn/qqimg/?qq=2925747911)  
+  
 [加入我们!](img/qun/qun.jpg)  
-[关于群(我们是一个怎样的群？)](img/qun/aboutqun.jpg)
+[关于我们的群主?](img/sh/shxg.jpg)
+[关于群(我们是一个怎样的群？)](img/qun/aboutqun.jpg)  
+
+###### ~~最后是群主SH的留言~~  
+~~世态炎凉，如今的群主竟然会被强灌药~~
