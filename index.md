@@ -1,5 +1,7 @@
 # 欢迎!  
-本站<https://wspbh.github.io/>
+本站:  
+<https://wspbh.github.io/>  
+收藏我们!
 
 ---
 
@@ -11,7 +13,6 @@
 [关于SH雌堕谁来背锅](img/sh/shcd.jpg)  
 [排卵的SH(雾)](img/sh/shfq-1.jpg)  
 [SH被曦曦喂药实录](img/sh/bwydsh.jpg)  
-> SH:群主是高危职业  
 [沉迷揉脸?](img/sh/shrl.jpg)  
 
 #### 942-雌堕标兵,一晚上就完成了
@@ -38,30 +39,32 @@
 [他承认他是变态了OHHHHHH](img/c9/c9.jpg)  
 [嘶~](img/c9/xwc.jpg)  
 
+---
+
 ## 群内~~男人~~雌堕人の头像(实时更新)
 ![SH](https://tenapi.cn/qqimg/?qq=1769481479)  
 群主SH-雌堕人之首  
-[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=1769481479&spec=5&img_type=jpg)
+[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=1769481479&spec=640&img_type=jpg)
 
 ![曦曦](https://tenapi.cn/qqimg/?qq=2038154919)  
 曦曦-雌堕成雌小鬼  
-[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=2038154919&spec=5&img_type=jpg)  
+[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=2038154919&spec=640&img_type=jpg)  
 
 
 ![942](https://tenapi.cn/qqimg/?qq=270067474)  
 942-创下最快雌堕记录  
-[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=270067474&spec=5&img_type=jpg)  
+[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=270067474&spec=640&img_type=jpg)  
 
 ---
 
 ## 群变态榜(头像实时更新)
 ![潇潇暮雨](https://tenapi.cn/qqimg/?qq=2925747911)  
 潇潇暮雨-一个正常人?(雾)  
-[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=2925747911&spec=5&img_type=jpg)  
+[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=2925747911&spec=640&img_type=jpg)  
 
 ![c9](https://tenapi.cn/qqimg/?qq=669439105)  
 c9-一个闷骚男(确信)(毕竟不是谁都懂那么多的)  
-[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=669439105&spec=5&img_type=jpg)  
+[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=669439105&spec=640&img_type=jpg)  
 
 ---
 
@@ -69,9 +72,9 @@ c9-一个闷骚男(确信)(毕竟不是谁都懂那么多的)
 [我们是一个怎样的群？](img/qun/aboutqun.jpg)  
 
 #### ~~最后是群主SH的留言~~  
-~~不要喂药,当群主太危险了~~  
+~~当群主被喂药,我真的服了~~  
 
 ---
 
-##### 由 [SH](https://v.api.aa1.cn/api/qqnicheng/index.php?qq=1769481479) 负责更新
+##### 由 想爱爱的女仆SH 负责更新
 ###### 联系我的[qq](img/sh/shqq.jpg)
