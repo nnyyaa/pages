@@ -1,4 +1,5 @@
 # 欢迎!  
+
 本站:  
 <https://wspbh.github.io/>  
 收藏我们!
@@ -8,12 +9,12 @@
 ## 群成员发癫鉴赏大全
 
 #### SH-整天发情的群主
-[群主SH最新人物图](img/sh/qz.jpg)  
+[群主SH最新人物全身图](img/sh/qz.jpg)  
 [群主的性格?](img/sh/shxg.jpg)  
 [关于SH雌堕谁来背锅](img/sh/shcd.jpg)  
-[排卵的SH(雾)](img/sh/shfq-1.jpg)  
+[SH排卵?(雾)](img/sh/shfq-1.jpg)  
 [SH被曦曦喂药实录](img/sh/bwydsh.jpg)  
-[沉迷揉脸?](img/sh/shrl.jpg)  
+[沉迷揉脸的奇葩性格](img/sh/shrl.jpg)  
 [SH的弱点](img/sh/shrd.jpg)  
 
 #### 942-雌堕标兵,一晚上就完成了
@@ -72,10 +73,8 @@ c9-一个闷骚男(确信)(毕竟不是谁都懂那么多的)
 [加入我们!](img/qun/qun.jpg)  
 [我们是一个怎样的群？](img/qun/aboutqun.jpg)  
 
-#### ~~最后是群主SH的留言~~  
-~~当群主被喂药,我真的服了~~  
+*~~当群主被喂药,我真的服了~~*  
 
 ---
 
-##### 由 想爱爱的女仆SH 负责更新
-###### 联系我的[qq](img/sh/shqq.jpg)
+##### 由 想爱爱的女仆SH 为爱更新
