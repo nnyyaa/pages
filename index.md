@@ -44,27 +44,27 @@
 ## 群内~~男人~~雌堕人の头像(实时更新)
 ![SH](https://tenapi.cn/qqimg/?qq=1769481479)  
 群主SH-雌堕人之首  
-[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=1769481479&spec=640&img_type=jpg)
+[高清版头像](http://q1.qlogo.cn/g?b=qq&nk=1769481479&s=640)  
 
 ![曦曦](https://tenapi.cn/qqimg/?qq=2038154919)  
 曦曦-雌堕成雌小鬼  
-[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=2038154919&spec=640&img_type=jpg)  
+[高清版头像](http://q1.qlogo.cn/g?b=qq&nk=2038154919&s=640)  
 
 
 ![942](https://tenapi.cn/qqimg/?qq=270067474)  
 942-创下最快雌堕记录  
-[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=270067474&spec=640&img_type=jpg)  
+[高清版头像](http://q1.qlogo.cn/g?b=qq&nk=270067474&s=640)  
 
 ---
 
 ## 群变态榜(头像实时更新)
 ![潇潇暮雨](https://tenapi.cn/qqimg/?qq=2925747911)  
 潇潇暮雨-一个正常人?(雾)  
-[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=2925747911&spec=640&img_type=jpg)  
+[高清版头像](http://q1.qlogo.cn/g?b=qq&nk=2925747911&s=640)  
 
 ![c9](https://tenapi.cn/qqimg/?qq=669439105)  
 c9-一个闷骚男(确信)(毕竟不是谁都懂那么多的)  
-[高清版头像](http://q.qlogo.cn/headimg_dl?dst_uin=669439105&spec=640&img_type=jpg)  
+[高清版头像](http://q1.qlogo.cn/g?b=qq&nk=669439105&s=640)  
 
 ---
 
