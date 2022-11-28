@@ -1,13 +1,13 @@
-name="啊嘞？"
-names="com.qun.crz"
-ver="1.0"
+name="com.qun.crz"
+names="com.XL.42929480"
+ver="crz"
 template="ZIP"
 
 --以下为App配置(apk打包)
 --输入关于软件弹出内容：
-关于软件="由 想要爱爱的女仆SH 为爱编写" true
---
-开启标题栏="false"
+关于软件="由 想爱爱的女仆SH 为爱编写"
+--true开启，false关闭
+开启标题栏="true"
 横屏模式="false"
 
 --应用图标放在当前工程根目录命名“xlicon.png”即可
