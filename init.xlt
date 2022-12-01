@@ -1,6 +1,6 @@
 name="群榜单"
 names="com.qun.bd"
-ver="$APP_VERSION_1.0.1"
+ver="APP_VERSION"
 template="ZIP"
 
 --以下为App配置(apk打包)
